@@ -1,13 +1,19 @@
-**CANIM SEVGILIM CANIM BITANEM ASKLARIN EN GUZELI EN PONCIRIGI EN TATLISI EN MASUMU EN NAZLISI EN LULE LULE SACLISI, EN BAL GOZLUSUEEEE**
+# 🎉🎂 **CANIM SEVGİLİM, CANIM BİTANEM!** 🎂🎉
 
-Sana bir sürü sürprizler yapıp, harika hediyeler almak istedim ama malum **Edirne olayları**ndan dolayı yapamadım, çok ama çok özür dilerim sevgilim.  
-Çok üzgünüm sana **iğrenç** bir doğum günü yaşattığım için. Keşke bu kadar kötü bir şekilde olmasaydı bugün. Keşke daha güzel, daha eğlenceli, daha anlamlı, daha duygusal bir gün yaşatabilseydim sana. En azından bilgisayarda beraber bir şeyler yapabilelim istemiştim, ancak bilgisayarlarımız buna müsait değil :(  
+**ASKLARIN EN GÜZELİ**, **EN PONCIRİĞİ**, **EN TATLISI**, **EN MASUMU**, **EN NAZLISI**, **EN LÜLE LÜLE SAÇLISI**, **EN BAL GÖZLÜSÜ!** 😘💖💫
 
-En azından birkaç güne bilgisayarlarımızın buna müsait olmasını sağlamak istediğim için sana birkaç tane **component** hediye etmek istedim.  
-Nolur beni affet ve birkaç gün süre ver, seninle beraber oyun oynayabilmemiz için...  
+Sana sürprizler yapıp **harika hediyeler** almak istedim, ama malum, **Edirne olayları** yüzünden biraz aksilik yaşadık... 😞 Ama yine de, sana **binlerce özür**! 🙏  
+Sana **iğrenç bir doğum günü** yaşattığım için çok üzgünüm. 😢 Keşke daha **güzel**, **eğlenceli**, **anlamlı** bir gün yaşatabilseydim sana. **Keşke o harika planlarım** gerçekleşseydi! 🙃  
+Ama üzülme, **her şeyin bir zamanı var**! 💪
 
-**Seni çok ama çok seviyorum**. Çok uzun süredir suratin neredeyse hep asık ve bu beni çok üzüyor. Seni mutlu etmek, huzurlu olmanı sağlamak için bir şeyler yapmayı çok istiyorum ancak ne kadar bir şeyler yapmak istesem her şey buna engel olmak için gelişiyor resmen.  
+**Bilgisayarlarımız da biraz ters yaptı** ama olsun, **seninle bir şeyler yapabilmek** için sabırsızlanıyorum! 🖥️💻 Birkaç güne, **bilgisayarlarımız yeni sürüm olacak** ve birlikte oyun oynayabileceğiz! 🎮✨
 
-Bana biraz daha zaman ver, söz bu iğrenç günleri geride bırakacağız. Emin ol hiç çalışmadığım kadar çalışıyorum, sadece iş anlamında değil. **Sen benim için çok değerlisin** ve senin üzgün olman beni paramparça ediyor.  
+O zamana kadar, sana **birkaç süper komponent** hediye etmek istedim. 🎁🎉 Umarım **bunu beğenirsin** ve affedersin beni! 💖
 
-**Seni çok seviyorum. İyi ki varsın. En kötü doğum günün böyle olsun bebiskom.** Bugünden itibaren her doğum gününü beraber geçirmek dileğiyle. **Seni çok seviyorum, nice senelere benim biricik bebiskom** ❤️
+Söz veriyorum, **bana biraz daha zaman ver**, her şey **çok daha güzel olacak**! 🌟 Artık ne kadar çalıştığımı sen de biliyorsun, ama sadece **iş değil, kalbimle de çalışıyorum** senin için! 💌  
+**Sen benim için her şeysin**, ve **senin üzülmen beni paramparça ediyor**! 💔
+
+**Seni çok seviyorum** 😍, **iyi ki varsın**! 🎈🎉 Bugün **en kötü doğum günün böyle** olsun, ama **bundan sonraki her doğum günü** seninle birlikte **mükemmel geçsin**! 🥳🎁
+
+**Nice yıllara, biricik bebiskom**! 💖 **Sonsuz sevgilerimle**,  
+**Sonsuza kadar seninim!** 💑🎉  
